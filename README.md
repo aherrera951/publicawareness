@@ -1,2 +1,2 @@
 # publicawareness
-A platform designed to help anybody through a financial hardship, regardless of the algorithms credit relies on.
+A platform designed to expand financial aid, with a variety, diverse world of options, regardless of your credit score.
